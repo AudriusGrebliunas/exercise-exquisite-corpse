@@ -22,3 +22,7 @@ Il modifia la trajectoire du vaisseau, fut sauvé et parti vers de nouvelles ave
 
 sauf que le **robot** sous <sub>ectasy</sub> decida quand meme de *tuer* l'astronaute pour aller au quartier des plaisirs de star wars rejoins une star :star: preaseuse qui lui fais le show de sa vie
 ![Coortney gears ma femme si j'etais un robot](https://media.tenor.com/zVH5RjgirAAAAAAC/ratchet-clank.gif)
+
+Mais lors de la descente, le **robot** regretta d'avoir tuer Johnny.   
+il se dit > J'aurais pu en faire mon esclave de cet astronaute.    
+Avec ses amis **robot**, il decida de faire de Johnny un **cyborg**.  
