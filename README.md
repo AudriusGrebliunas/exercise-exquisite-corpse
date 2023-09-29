@@ -25,4 +25,10 @@ sauf que le **robot** sous <sub>ectasy</sub> decida quand meme de *tuer* l'astro
 
 Mais lors de la descente, le **robot** regretta d'avoir tuer Johnny.   
 il se dit > J'aurais pu en faire mon esclave de cet astronaute.    
-Avec ses amis **robot**, il decida de faire de Johnny un **cyborg**.  
+Avec ses amis **robot**, il decida de faire de Johnny un **cyborg**.   
+![Cyborg](https://media.tenor.com/3yNaEqH-fDAAAAAM/arnold-metaeditor.gif "cyborg)
+
+Le **robot** se rendit compte qu'il avait oublié de prendre de l'argent pour pouvoir la payer. Il fit semblant d'aller aux toilettes pour pouvoir s'échapper par la fenêtre mais les videurs ne sont pas cons vu qu'ils savent que les robots ne sont pas capable d'uriner. Ils l'ont arreté et amener dans un salle à l'arrière.
+
+![stormtrooper devenu videur](https://i5.walmartimages.com/seo/Star-Wars-The-Vintage-Collection-Stormtrooper-Action-Figure-and-1-accessory_a2eb55e0-ea47-44c2-b9e0-9f6b379e8412.e3614d56e8b5eac8d553204baf223bcd.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
