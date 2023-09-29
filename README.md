@@ -32,3 +32,4 @@ Le **robot** se rendit compte qu'il avait oublié de prendre de l'argent pour po
 
 ![stormtrooper devenu videur](https://i5.walmartimages.com/seo/Star-Wars-The-Vintage-Collection-Stormtrooper-Action-Figure-and-1-accessory_a2eb55e0-ea47-44c2-b9e0-9f6b379e8412.e3614d56e8b5eac8d553204baf223bcd.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+Merci
