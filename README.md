@@ -20,4 +20,5 @@ Après quelques heures, il décida d'interoger la mémoire vive du robot, et se 
 
 Il modifia la trajectoire du vaisseau, fut sauvé et parti vers de nouvelles aventures avec le **robot**
 
-
+sauf que le **robot** sous <sub>ectasy</sub> decida quand meme de *tuer* l'astronaute pour aller au quartier des plaisirs de star wars rejoins une star :star: preaseuse qui lui fais le show de sa vie
+![Coortney gears ma femme si j'etais un robot](https://media.tenor.com/zVH5RjgirAAAAAAC/ratchet-clank.gif)
